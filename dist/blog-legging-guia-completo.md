@@ -1,5 +1,6 @@
 # Guia Completo: Como Escolher a Legging Fitness Perfeita para seu Tipo de Treino e Corpo
 
+*Por Manus AI - Especialista em Moda Fitness*
 
 ## Introdução
 

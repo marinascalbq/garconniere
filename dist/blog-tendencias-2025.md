@@ -1,5 +1,7 @@
 # Tendências de Moda Fitness para 2025: O Futuro do Vestuário Esportivo Feminino
 
+*Por Manus AI - Especialista em Moda Fitness*
+
 ## Introdução
 
 O ano de 2025 marca uma nova era na moda fitness feminina, caracterizada pela convergência entre tecnologia avançada, sustentabilidade e design inovador. As tendências emergentes refletem não apenas as necessidades funcionais das mulheres ativas, mas também seus valores e aspirações em um mundo cada vez mais consciente e conectado.
